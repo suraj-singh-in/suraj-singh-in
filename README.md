@@ -7,3 +7,5 @@ I have been honing my skills in the tech industry for 4 year, specializing in fu
 ### Interests
 Aside from my love for coding, I have a deep passion for reading books. I find solace and inspiration within the pages of various genres, expanding my knowledge and broadening my horizons. 
 Some of my favorite books include The Wind-Up Bird Chronicle, Crime and Punishment, and The Song of Achilles. 
+
+you can find more about me at: http://notasecondhandlife.com/
